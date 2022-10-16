@@ -1,4 +1,4 @@
-# bible-study
+# Bible Study
 
 ## Isaiah
 
