@@ -8,3 +8,5 @@
 ## End times
 
 1 Corinthians 15:50–58
+Matthew 24
+2 Thimothy 3:1-9
