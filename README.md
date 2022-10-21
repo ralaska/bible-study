@@ -9,6 +9,8 @@
 
 * Micah 7:3–8
 * Matthew 24
+  - Matthew 24:23–26 - Not a secret event.
 * Luke 17:20-37
 * 1 Corinthians 15:50–58
 * 2 Thimothy 3:1-9
+* Revelation 19:11–15
