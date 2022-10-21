@@ -8,6 +8,7 @@
 ## End times
 
 * Micah 7:3–8
+  - Micah 7:8 - <https://bible.peplamb.com/?v=NIV1984&r=Mic7:8>
 * Matthew 24
   - Matthew 24:23–26 - Not a secret event.
 * Luke 17:20-37
