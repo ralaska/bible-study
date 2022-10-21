@@ -9,5 +9,6 @@
 
 * Micah 7:3–8
 * Matthew 24
+* Luke 17:20-37
 * 1 Corinthians 15:50–58
 * 2 Thimothy 3:1-9
