@@ -54,6 +54,8 @@
 
 ## End times
 
+* Isaiah 26
+  - Isaiah 26:9, 19
 * Micah 7:3–8
   - Micah 7:8 - <https://bible.peplamb.com/?v=NIV1984&r=Mic7:8>
 * Matthew 24
@@ -61,4 +63,5 @@
 * Luke 17:20-37
 * 1 Corinthians 15:50–58
 * 2 Thimothy 3:1-9
+* 1 Thess 4:16,17
 * Revelation 19:11–15
