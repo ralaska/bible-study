@@ -65,3 +65,27 @@
 * 2 Thimothy 3:1-9
 * 1 Thess 4:16,17
 * Revelation 19:11–15
+
+## Meaning of Streangth or Power of GOD
+
+* Rom 1:16
+* 1 Cor 4:20
+* Jer 1:8,9
+* Jer 23:29
+* Jer 51:20
+* Psalm 51:16
+* Psalm 138:2
+* Jer 15:19, 20
+* Mat 24:35
+* Hosea 3:7
+* Deu 33:29
+* Deu 2:25
+* Deu 28:7,10,13
+* Eph 1:22
+* Eph 6:17
+* Mal 4:2,3
+* Isa 45:1,2,3
+* Job 5:9
+* Pro 10:22
+* Pro 8:21
+* Rom 16:20,21
